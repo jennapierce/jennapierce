@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jennapierce
-- 👀 I’m interested in calculus, education, & my puppy King!!
+- 👀 I’m interested in algebra, calculus, education, & my puppy King!!
 - 🌱 I’m currently learning killer sudoku!
 - 💞️ I’m looking to collaborate on technology based educational approaches.
 - 📫 How to reach me jpierce@ppsb.org
